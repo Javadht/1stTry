@@ -1,7 +1,7 @@
 # 1stTry
 
-Today I was enjoying my "resignation-celebration-waves" thinking of a tea and sun and no shit form ABOVE, but suddenly I felt something down at my butt. The pain of fidning another master to be his slave for feeding your fucking stomach! oh shit, I got mad agaian, no worries, back to the story;
-when the pain came from my butt to my mind, again, suddenly my poetry spirit quickly went to washroom and and I felt I need to share what insulted my mind so much now, maybe at some point in the future someone can understand that my maddness is for real, not for imagery!
+Today I was enjoying my "resignation-celebration-waves" thinking of a tea and sun and no shit form ABOVE, but suddenly I felt something down at my butt. The pain of fidning another master to be his slave to be able to feed my fucking stomach to stay alive for the next working healthy day, with new HR PARTY, Wooooowooowooo! oh shit, I got mad agaian, no worries, back to the story;
+when the pain came from my butt to my mind, again, my poetry spirit quickly went to the washroom downstairs and and I had the chance to fly my thought over some bullshit again.
 
 Forgot to tell you the instruction:
 
